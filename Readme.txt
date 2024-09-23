@@ -1,2 +1,2 @@
 Este grupo esta compuesto por:
-John David Molina Velarde
+John David Molina Velarde jd_v@yahoo.com
